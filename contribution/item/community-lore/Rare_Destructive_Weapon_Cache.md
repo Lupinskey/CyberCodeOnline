@@ -1,0 +1,1 @@
+"Boom! Bang! Kablam!" Only one thing makes these kind of noises! Destructive weapons Bay-Bee, print yours now before the next punk on the streets blows you to shreds instead.-Sponsored by Tsunami Arms
